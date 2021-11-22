@@ -1,6 +1,7 @@
  I’m juanfra, a digital entrepreneur and eternal learner
 
 Currently working on my marketing agency
+
 Email: juanfradebenito2305@gmail.com
 
 
